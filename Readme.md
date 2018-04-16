@@ -35,3 +35,21 @@ I can program small(3 lines of code useful program) or I can program big (thousa
 And there is excellence. kant write bad code and nothing worse than bloatware.
 
 ************************************** * 
+
+For your ideas to flow THE ENVIRONMENT must be customizable.
+<br>In the absence of customization we survive. 
+
+In abstract abject stories dreaming of the world that was.
+<br>Awaiting the release of version "new" that opens the door.
+
+Dreading when the new update breaks the software. 
+<br>And hoping we can find a pirated way back. 
+<br>Because old software never truly dies.
+
+The Apple Store can delete the app from your phone but you can always email the founder.
+
+"Open Source", It made my life so much easier.
+<br>cuts the the cloak of suspicion and non answer toward the skill worthiness of others.
+<br>thereby learning the skillworthiness of yourself.
+
+************************************** * 
