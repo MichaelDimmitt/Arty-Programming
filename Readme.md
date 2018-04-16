@@ -23,7 +23,10 @@ Writers talk of worlds that do not exist. that cannot exist. So that they may be
 <br>Or they store it somewhere that the own the data. 
 <br>Or give it where it wont be destroyed.
 <br>Awaiting the day it can progress and not be denounced. or do nothing and not be denounced.
-
+<br>organize: SHARE it with others and they become the probe you send to remember.
+<br>share and they may choose to own it themselves.
+<br>make others the leader in name if you believe in something.
+<br>the passionate often keep idea respect; and now there were two where there once was one.
 ## Stories 
 ## Sketches
 ## Storage
