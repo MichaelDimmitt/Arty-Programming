@@ -62,7 +62,16 @@ Chapter 4
 painting is hard blank pages taunt you to use anything to express everything one at a time all at once..
 <br>programming should be the open page. Allowing everything IN WEB html this is often where trouble is found.
 <br>lack of good ideas when the empty paper taunts to put something useful.
-<br>A container exists! so lets use it before we know what to do!
+<br>too, the tool of the computer is limited. Limitation causes a something to do. 
+<br> draw it. now the paper looks naught daunting.
+<br> if the flexibility exists why doesnt the creation exist in this environment?
+<br>go build it!
+<br>if the flexibility doesnt exist say why that frustrates you. Say what you want.
+<br> shelv it away for when it is possible.
+<br> shelv it away for then the competitor offers the flexibility.
+<br>pray and hope they once add the flexibility. much as we pray for rain.
+<br>framework, web framework! container exists! so lets use it before we know what to do!
+<br>Look its a blank canvas and so excited.
 
 everyone has 12 of the containers with the same theme repeated and 
 <br>6 other containers that are different kind of containers.
