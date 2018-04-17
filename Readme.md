@@ -56,3 +56,24 @@ The Apple Store can delete the app from your phone but you can always email the 
 <br>thereby learning the skillworthiness of yourself.
 
 ************************************** * 
+
+Chapter 4
+
+painting is hard blank pages taunt you to use anything to express everything one at a time all at once..
+<br>programming should be the open page. Allowing everything IN WEB html this is often where trouble is found.
+<br>lack of good ideas when the empty paper taunts to put something useful.
+<br>A container exists! so lets use it before we know what to do!
+
+everyone has 12 of the containers with the same theme repeated and 
+<br>6 other containers that are different kind of containers.
+
+## But seriously, the program world is better when nearer art.
+## but next is an easier creation world.
+such as the art of living is its own story.
+<br>metaprogramming needs to be at will able to build on top of other systems.
+
+create worlds from scratch with stream of consciousness that others can join... 
+<br>or interpret your macro on top of them
+
+and all of this translated to text. 
+<br>and translated back to hello_world.
