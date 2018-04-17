@@ -75,5 +75,29 @@ such as the art of living is its own story.
 create worlds from scratch with stream of consciousness that others can join... 
 <br>or interpret your macro on top of them
 
+#### Stealing can be the quickest form of art .
+better to live having created alot of good derivative work.
+<br> Than produce in cog fashion as "meagre"
+<br> to adapt works with a conscience and good behavior, of course. 
+<br>You dont want that copywrited image, trust me but please take a pixelated color.
+<br> translate into another arform. make a lot of Good stuff Fast.
+
+Have a ton so that you can delete and bring forth the curation that is your person. 
+
 and all of this translated to text. 
 <br>and translated back to hello_world.
+
+<hr>
+whoops 🐱 had not yet put in an emoji. 
+
+In this repository, I want to put my ideas of areas I want to program that are not configurable enough 
+<br>due to constraints from providers or lack in my knowledgebase of the subject.
+
+## 3d Aug Reality I want an ugly pet ... chia-demon just hovering always
+like the floaters in my eyes that are always present.
+<br>and nothing else. I want my program in the absence of others impacting my reality.
+## 3d Aug Reality I want to take others enviroments and coalesce or retranslate
+## 3d Aug Reality I want write a note for the day 
+and refer back whenever needed.
+<br> and hide and forget whenever not needed.
+
